@@ -6,5 +6,6 @@ If Students/Parents Are Facing Any Issue/Problem They Can Go In Complain Section
 
 This Are Main Functionalities Which Institute Students Will Get Help To Run Your Work In Easy Way..
 
-Contact Us -> imsofficialcontactus@gmail.com , harshpandey9079@gmail.com , +91-7891676144
+Contact Us -> imsofficialcontactus@gmail.com , harshpandey9079@gmail.com , 
+Phone & Whatsapp = +91-7891676144
 Linkedin : https://www.linkedin.com/in/harsh-pandey-2161hp
